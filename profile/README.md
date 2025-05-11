@@ -6,9 +6,9 @@
 
 :-
 
-**➤ 𝚂𝚃𝚁𝙴𝙰𝙼𝙸𝙽𝙶-𝚅𝙵 ➥ [https://t.co/2LT6MrS3UZ](https://t.co/2LT6MrS3UZ)**
+**➤ 𝚂𝚃𝚁𝙴𝙰𝙼𝙸𝙽𝙶-𝚅𝙵 ➥ [https://movie-247.com/fr/movie/986056/thunderbolts。GITHUB𓅯](https://movie-247.com/fr/movie/986056/thunderbolts。GITHUB𓅯)**
 
-**➤ 𝚃𝙴𝙻𝙴𝙲𝙷𝙰𝚁𝙶𝙴𝚁-𝚅𝙵 ➥ [https://t.co/2LT6MrS3UZ](https://t.co/2LT6MrS3UZ)**
+**➤ 𝚃𝙴𝙻𝙴𝙲𝙷𝙰𝚁𝙶𝙴𝚁-𝚅𝙵 ➥ [https://movie-247.com/fr/movie/986056/thunderbolts。GITHUB𓅯](https://movie-247.com/fr/movie/986056/thunderbolts。GITHUB𓅯)**
 
 :-
 
